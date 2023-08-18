@@ -1,0 +1,4 @@
+- 💻 Hello, I'm Developing Myself in Cyber ​​Security and Coding Languages
+- 🤪 Languages ​​I Know As Coding Python, C#, Shell
+- 🧐 I Like To Read Research Articles
+- 👻 I will give you the programs and projects that I developed myself
